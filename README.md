@@ -15,11 +15,9 @@ Exclusive Events Page
 Get on the guest list for: 
 
 Kimi's Special Annual Celebration 
-
-
-            RSVP HERE: [https://kimberly387.typeform.com/to/ZMgtns](www.typeform.com)
-
- 
+		
+		[RSVP HERE](https://kimberly387.typeform.com/to/ZMgtns)
+		
 ## Volunteer for set up or take down or
 
 ### DONATE SPEAKERS?
