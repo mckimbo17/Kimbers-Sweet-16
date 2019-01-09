@@ -1,10 +1,21 @@
-# Kimbers-Sweet-16
-Welcome to
-Kimbo's
+# So you've been invited huh? Welcome to Kimbers-Sweet-16
+
+
+		BE FREE ON JANUARY 26TH FOR THIS PARTY
 Exclusive Events Page
 Get on the guest list for: 
-Kims Special Annual Celebration   
-RSVP HERE:   
+
+Kimi's Special Annual Celebration 
+
+
+            RSVP HERE: 
+
 https://kimberly387.typeform.com/to/ZMgtns
-  This years theme:
-Sweet Sixteen Silver & White party.
+
+  This years theme is:   
+Laid back; country 
+
+## Volunteer for set up or take down or
+
+### DONATE SPEAKERS?
+email me @ kimbosweet16@gmail.com
