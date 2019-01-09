@@ -17,7 +17,7 @@ Get on the guest list for:
 Kimi's Special Annual Celebration 
 
 
-            RSVP HERE: (https://kimberly387.typeform.com/to/ZMgtns)[www.typeform.com]
+            RSVP HERE: https://kimberly387.typeform.com/to/ZMgtns
 
  
 ## Volunteer for set up or take down or
@@ -28,4 +28,5 @@ email me @ kimbosweet16@gmail.com
 
 
 
-...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything i like random cute things, i honestly dont care just show up and dance :)
+
+...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just show up and dance :)
