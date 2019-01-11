@@ -28,13 +28,15 @@ Laid back; Classy, Comfy, Country style :horse:
 
 
 
-...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete?, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just SHOW UP AND DANCE! :)
-:dancer:
-
- 
 ### Volunteer for set up or take down 
 
 ## or
 
 ### DONATE the use of SPEAKERS for the event?
 email me @ kimbosweet16@gmail.com
+
+
+...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete?, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just SHOW UP AND DANCE! :)
+:dancer:
+
+ 
