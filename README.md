@@ -1,8 +1,6 @@
 # YOU! 
 
-# YES, youuuuu 
-
-# have been invited to my, a.k.a Kimberly's Sweet 16th Birthday! Whoop Whoop!
+# YES, youuuuu have been invited to my, a.k.a Kimberly's Sweet 16th Birthday! Whoop Whoop!
 
 <p align="center">So you've been invited huh?
 <br/>
