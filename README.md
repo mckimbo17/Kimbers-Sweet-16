@@ -1,14 +1,22 @@
-# YOU! YES, youuuuu have been invited to my, a.k.a Kimberly's Sweet 16th Birthday! Whoop Whoop!
+# YOU! 
 
-So you've been invited huh? Welcome to Kimbers-Sweet-16 (scroll all the way dowwnnnn) 
+# YES, youuuuu 
 
-                        BE FREE ON JANUARY 26TH FOR THIS PARTY
+# have been invited to my, a.k.a Kimberly's Sweet 16th Birthday! Whoop Whoop!
+
+<p align="center">So you've been invited huh?
+<br/>
+Welcome to Kimbers-Sweet-16 
+<br/>
+(scroll all the way dowwnnnn) </p>
+
+<p align="center">BE FREE ON JANUARY 26TH FOR THIS PARTY</p>
 
  This years theme is:   
-Laid back; country 
+Laid back; country style
 
-       LOCATION: 15757 E Sargent Rd, Lodi, CA 95240
-       if you cannot find it here you can also look for sargent equestrian center
+[LOCATION: 15757 E Sargent Rd, Lodi, CA 95240](https://goo.gl/maps/r2VDvppPxTr)
+      
 		
 Exclusive Events Page
 
@@ -29,4 +37,4 @@ email me @ kimbosweet16@gmail.com
 
 
 
-...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just show up and dance :)
+...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete?, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just SHOW UP AND DANCE! :)
