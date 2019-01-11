@@ -1,27 +1,28 @@
-# YOU! 
+"Exclusive Events Page"
+<h1 align="center">YOU! <br>
+YES, youuuuu have been invited <br>
+to my, a.k.a Kimberly's <br>
+Sweet 16th Birthday! <br></h1>
+<h2 align="center">Whoop Whoop! <br>
+</h2>
 
-# YES, youuuuu have been invited to my, a.k.a Kimberly's Sweet 16th Birthday! Whoop Whoop!
+![Ballons](https://images.unsplash.com/photo-1524293568345-75d62c3664f7?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=400&q=60)
 
 <p align="center">So you've been invited huh?
-<br/>
+<br>
 Welcome to Kimbers-Sweet-16 
-<br/>
+<br>
 (scroll all the way dowwnnnn) </p>
 
-<p align="center">BE FREE ON JANUARY 26TH FOR THIS PARTY</p>
+<p align="center">BE FREE ON JANUARY 26TH 2019 FOR <i>THIS</i> PARTY</p>
 
  This years theme is:   
-Laid back; country style
-
-[LOCATION: 15757 E Sargent Rd, Lodi, CA 95240](https://goo.gl/maps/r2VDvppPxTr)
-      
-		
-Exclusive Events Page
+Laid back; Classy, Comfy, Country style :horse:
+:bowtie:
 
 Get on the guest list for: 
 
-Kimi's Special Annual Celebration 
-
+:sparkles: Kimi's Special Annual Celebration :sparkles:
 
 [Click here to RSVP](https://kimberly387.typeform.com/to/ZMgtns)
 
@@ -36,3 +37,4 @@ email me @ kimbosweet16@gmail.com
 
 
 ...if you want to get me a present but don't know what to get me, gift cards are great, cash, james charles pallete?, bath bombs, small smelly good things, self care stuff, lotions, spa time, cute protective phone cases, really anything, if not just SHOW UP AND DANCE! :)
+:dancer:
