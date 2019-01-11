@@ -17,7 +17,7 @@ Get on the guest list for:
 Kimi's Special Annual Celebration 
 
 
-![Click here to RSVP](https://kimberly387.typeform.com/to/ZMgtns)
+[Click here to RSVP](https://kimberly387.typeform.com/to/ZMgtns)
 
  
 ## Volunteer for set up or take down or
