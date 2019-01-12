@@ -6,9 +6,10 @@ Sweet 16th Birthday! <br></h1>
 <h2 align="center">Whoop Whoop! <br>
 </h2>
 
-![Ballons](https://images.unsplash.com/photo-1524293568345-75d62c3664f7?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=400&q=60)
+<img align="center">![Ballons](https://images.unsplash.com/photo-1524293568345-75d62c3664f7?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=400&q=60)<img align="center">
 
 <p align="center">So you've been invited huh?
+
 <br>
 Welcome to Kimbers-Sweet-16 
 <br>
